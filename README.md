@@ -3,4 +3,4 @@
 - Por enquanto estou aprendendo pelos cursos da Alura
 - Pronomes: Ele/Dele
 - História engraçada: Já colei na prova de matemática da minha amiga uma vez e nós dois tiramos a mesma nota.
-![](https://tenor.com/view/markiplier-jumpscare-punch-fnaf-gif-23353403)
+![isso isso e aquilo](https://tenor.com/view/markiplier-jumpscare-punch-fnaf-gif-23353403)
